@@ -12,4 +12,10 @@ Nació en 1934-35 como la primera aria de _Porgy and Bess_, la "ópera folk amer
 
 El estreno de _Porgy and Bess_ en 1935 fue un fracaso comercial, pero **Summertime** escapó inmediatamente del naufragio.
 
-**Billie Holiday** la grabó en 1936,  
+**Billie Holiday** la grabó en 1936, apenas un año después del estreno de la ópera, y ese fue el momento fundacional: la sacó del contexto teatral, le bajó el dramatismo operístico y la convirtió en una pieza de jazz vocal con swing lánguido. **Sidney Bechet** hizo en 1939 una versión instrumental en soprano que se volvió su tema insignia y demostró que la melodía funcionaba perfectamente sin letra.
+
+La razón de por qué el jazz la ama es estructural: es un blues menor disfrazado de canción de cuna. Se puede tocar como blues, como balada, como tema modal a lo Coltrane, en clave latina, en 3/4, funk, lo que sea. Es, junto con el blues mismo, uno de los vehículos de improvisación más democráticos que existen: la tocan estudiantes en su primera jam y la tocó Coltrane deconstruyéndola por completo.
+
+La versión de **Miles Davis** con **Gil Evans** (_Porgy and Bess, 1959_) es quizá la cumbre instrumental: ese arreglo con los vientos repitiendo un riff hipnótico mientras la trompeta con sordina flota encima redefine el tema para siempre. **Ella Fitzgerald** y **Louis Amstrong** (1958) grabaron la versión vocal de referencia, con la trompeta de **Amstrong** dialogando con la la voz de **Ella**. **John Coltrane** la atacó en _My Favorite Things_ (1961) con una versión torrencial, casi agresiva, en las antípodas de la nana original. Y hay que sumar a **Art Tatum**, **Charlie Parker**, **Chet Baker**, **Oscar Peterson**, **Nina Simone** (a mitad de camino entre jazz y soul), y la versión de **Janis Joplin** que, aunque es rock, bebe directamente de la tradición jazz - blues del tema.
+
+Su rareza histórica es notable: una pieza escrita por un compositor blanco de _Broadway_ imitando el _spiritual_ negro terminó siendo legitimada, transformada y canonizada precisamente por los músicos afroamericanos de jazz, de **Billie** a **Miles** a **Coltrane**, que la convirtieron en territorio propio. Pocas canciones tienen una vida posterior tan radicalmente distinta de su nacimiento.
